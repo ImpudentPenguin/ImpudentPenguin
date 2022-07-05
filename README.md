@@ -1,6 +1,6 @@
 ### Welcome 🐧
 I'm Elena 👋\
-Telegram: @ElenMakeeva
+**Telegram: @ElenMakeeva**
 
 About me:
 * I'm Middle Android Developer at MTS Digital
