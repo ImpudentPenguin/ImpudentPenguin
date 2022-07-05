@@ -1,5 +1,5 @@
 ### Welcome 🐧
-I'm Elena 👋
+I'm Elena 👋\
 Telegram: @ElenMakeeva
 
 About me:
